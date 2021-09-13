@@ -9,6 +9,7 @@
 - Art Institute
 - Cloud Gate
 - Michigan Lake
+- Hyde Park
 
  - First thing
  - Second thing
