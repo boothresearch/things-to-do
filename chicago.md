@@ -8,3 +8,4 @@
 
 - Art Institute
 - Cloud Gate
+- Michigan Lake
