@@ -2,7 +2,13 @@
 
 ## Things to eat
 
+- Pizza
 
 ## Things to see
 
- - First thing
+ - Lakefront Trail
+ - Field Museum
+ - Museum of Science and Industry
+ - Shedd Aquarium
+ - Ukrainian National Museum
+ - Tribune Tower
