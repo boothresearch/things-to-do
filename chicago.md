@@ -4,7 +4,12 @@
 - Pizza
 - Noodles
 
+* Deep dish pizza
+
 ## Things to see
+
+- Art Institute
+- Shedd
 
 - Art Institute
 - Cloud Gate
