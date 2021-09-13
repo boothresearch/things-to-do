@@ -2,7 +2,8 @@
 
 ## Things to eat
 
-
+ - Au Cheval (best burger in the world)
+ - Monteverde (amazing Italian)
 ## Things to see
 
- - First thing
+ - Rooted & Radical (youth spoken word festival)
