@@ -6,3 +6,4 @@
 ## Things to see
 
  - First thing
+ - Second thing
