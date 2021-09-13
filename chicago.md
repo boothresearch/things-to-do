@@ -5,4 +5,4 @@
 
 ## Things to see
 
- - First thing
+ - lakefront/ promotory point
