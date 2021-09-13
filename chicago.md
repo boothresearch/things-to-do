@@ -1,6 +1,7 @@
 # Things to do in Chicago
 
 ## Things to eat
+- Portillos 
 - Deep dish.
 - Portillos 
 - Pizza
