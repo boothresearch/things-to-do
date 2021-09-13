@@ -8,3 +8,4 @@
 ## Things to see
 
  - Rooted & Radical (youth spoken word festival)
+ - The Second City (comedy show)
