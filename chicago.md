@@ -7,3 +7,4 @@
 ## Things to see
 
 - Art Institute
+- Shedd
