@@ -5,4 +5,5 @@
 
 ## Things to see
 
- - First thing
+- Art Institute
+- Cloud Gate
