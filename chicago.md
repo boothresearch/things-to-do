@@ -2,6 +2,7 @@
 
 ## Things to eat
 - Pizza
+- Medici sandwich 
 - Noodles
 
  - Au Cheval (best burger in the world)
