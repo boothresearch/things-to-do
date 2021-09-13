@@ -9,3 +9,8 @@
 - Art Institute
 - Cloud Gate
 - Michigan Lake
+- Hyde Park
+
+ - First thing
+ - Sue the T-Rex!
+ - Second thing
