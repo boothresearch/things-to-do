@@ -13,6 +13,8 @@
 
 ## Things to see
 
+ - lakefront/ promotory point
+
  - Rooted & Radical (youth spoken word festival)
 
 - Art Institute
