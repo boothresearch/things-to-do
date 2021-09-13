@@ -6,4 +6,4 @@
 
 ## Things to see
 
-- First thing
+- Art Institute
