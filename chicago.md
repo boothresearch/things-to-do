@@ -8,3 +8,4 @@
 
 - Art Institute
 - Shedd
+- DuSable Museum
