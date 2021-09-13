@@ -8,6 +8,7 @@
 
 - Art Institute
 - Cloud Gate
+- Michigan Lake
 
  - First thing
  - Second thing
