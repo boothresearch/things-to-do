@@ -2,6 +2,7 @@
 
 ## Things to eat
 - Pizza
+- Medici sandwich 
 
 ## Things to see
 
