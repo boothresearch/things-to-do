@@ -2,7 +2,8 @@
 
 ## Things to eat
 
+* Deep dish pizza
 
 ## Things to see
 
- - First thing
+- First thing
