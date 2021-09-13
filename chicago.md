@@ -4,9 +4,14 @@
 - Pizza
 - Noodles
 
+ - Au Cheval (best burger in the world)
+ - Monteverde (amazing Italian)
+ - Osteria Langhe
 * Deep dish pizza
 
 ## Things to see
+
+ - Rooted & Radical (youth spoken word festival)
 
 - Art Institute
 - Shedd
